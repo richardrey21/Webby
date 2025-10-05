@@ -1,1 +1,0 @@
-# richardrey21.github.io
